@@ -7,6 +7,126 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 22:29
+---
+
+## VahidOOnLine — post 240689
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240689_1779044355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش مشاور دیپلماتیک رییس امارات متحده عربی در شبکه اجتماعی ایکس نوشت: «هدف قرار دادن تروریستی نیروگاه هسته‌ای پاک براکه، چه از سوی عامل اصلی و چه از طریق یکی از عوامل نیابتی آن، یک تشدید تنش خطرناک و صحنه‌ای تاریک است که تمامی قوانین و عرف‌های بین‌المللی را نقض می‌کند، در حالی که بی‌توجهی جنایتکارانه‌ به جان غیرنظامیان در امارات متحده عربی و پیرامون آن است.»
+
+قرقاش ادامه داد: «این تشدید تنش ممنوع، بار دیگر ماهیت چالش‌هایی را که منطقه در مواجهه با نیروهای شر، هرج‌ومرج و خرابکاری با آنها روبه‌رو است، تایید می‌کند.»
+
+او افزود: «هیچ‌کس نخواهد توانست بازوی امارات را بپیچاند، و هیچ‌کس موفق نخواهد شد چشم‌انداز، موفقیت و پیام الهام‌بخش آن به مردم منطقه در زمینه امنیت، ثبات، توسعه و شکوفایی را تضعیف کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## kianmeli1 — post 87454
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87454_1779044356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به کانال ۱۳ گفت:
+
+"من فکر می‌کنم ایرانی‌ها باید از آنچه در حال حاضر در حال وقوع است بترسند."
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337678
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337678_1779044356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چشم‌انداز با مهدی مهدوی‌آزاد: اهداف اصلی آمریکا و اسرائیل در حمله دوباره به ایران
+
+نسخه کامل این قسمت را در یوتیوب ایران‌اینترنشنال تماشا کنید:
+https://youtu.be/6u1N8mDDOMA
+@iranintltv
+</div>
+
+## IranIntlTV — post 337677
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337677_1779044359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش مشاور دیپلماتیک رییس امارات متحده عربی در شبکه اجتماعی ایکس نوشت: «هدف قرار دادن تروریستی نیروگاه هسته‌ای پاک براکه، چه از سوی عامل اصلی و چه از طریق یکی از عوامل نیابتی آن، یک تشدید تنش خطرناک و صحنه‌ای تاریک است که تمامی قوانین و عرف‌های بین‌المللی را نقض می‌کند، در حالی که بی‌توجهی جنایتکارانه‌ به جان غیرنظامیان در امارات متحده عربی و پیرامون آن است.»
+
+قرقاش ادامه داد: «این تشدید تنش ممنوع، بار دیگر ماهیت چالش‌هایی را که منطقه در مواجهه با نیروهای شر، هرج‌ومرج و خرابکاری با آنها روبه‌رو است، تایید می‌کند.»
+
+او افزود: «هیچ‌کس نخواهد توانست بازوی امارات را بپیچاند، و هیچ‌کس موفق نخواهد شد چشم‌انداز، موفقیت و پیام الهام‌بخش آن به مردم منطقه در زمینه امنیت، ثبات، توسعه و شکوفایی را تضعیف کند.»
+https://iranintl.com/202605172450
+</div>
+
+## FarsiVOA — post 217996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره حملە پهپادی بە نیروگاە اتمی ابوظبی، ادامە حملات بە اقلیم کردستان عراق، تلاش برای باجگیری و اختلال در اینترنت جهانی از طریق کابلهایی کە از زیر آبهای خلیج فارس میگذرد و ادامە محاصرە دریایی بنادر جنوبی گفتگو می‌کند
+@FarsiVOA
+</div>
+
+## alonews — post 120669
+
+<div align="center">
+  <a href="telegram/content/alonews_120669_1779044360.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ،محسن رضایی : مقاومت ایران تغییرات ژئوپلیتیکی جهان رو سرعت داده 
+🔴 اتحادهای آمریکا رو ضعیف کرده و باعث تقویت روسیه و چین شده 
+🔴 جمهوری اسلامی الان تو موقعیت راهبردی جدیدی قرار داره 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120668
+
+<div align="center">
+  <a href="telegram/content/alonews_120668_1779044360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیمپسون‌ها چیه ما خودمون قهوه‌تلخ‌ داریم
+
+[@AloTweet]
+</div>
+
+## alonews — post 120667
+
+<div align="center">
+  <a href="telegram/content/alonews_120667_1779044363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: ترامپ با آزادسازی دارایی‌های بلوکه شده مخالفت کرد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120666
+
+<div align="center">
+  <a href="telegram/content/alonews_120666_1779044363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ،محسن رضایی : مقاومت ایران تغییرات ژئوپلیتیکی جهان رو سرعت داده
+
+
+🔴 اتحادهای آمریکا رو ضعیف کرده و باعث تقویت روسیه و چین شده
+
+
+🔴 جمهوری اسلامی الان تو موقعیت راهبردی جدیدی قرار داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 22:22
 ---
 
